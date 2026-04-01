@@ -90,6 +90,7 @@ Feel free to reach out for collaboration opportunities or just a friendly chat!
 
 **📧 Email:** mitivycam@gmail.com  
 **💼 LinkedIn:** [yuanziqi](https://www.linkedin.com/in/yuanziqi)
-**Personal Website** www.yuanziqi3.com
+
+**Personal Website:** www.yuanziqi3.com
 
 ---
